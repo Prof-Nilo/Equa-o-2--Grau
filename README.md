@@ -1,1 +1,1 @@
-# Equão 2º do Grau
+# Equação do 2º Grau
